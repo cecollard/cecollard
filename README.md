@@ -34,7 +34,7 @@ Currently seeking Director / Sr. Director PM roles where I can apply deep domain
 
 
 Let's connect
-I'm actively exploring opportunities and always interested in conversations about the future of security, AI's role in the industry, and what great product leadership looks like in this space.
+I'm actively exploring and always interested in conversations about the future of security, AI's role in the industry, and what great product leadership looks like in this space.
 
 🔗 LinkedIn - https://www.linkedin.com/in/chriscollard/
 📬 Reach me via LinkedIn or GitHub Discussions or chriscollard@gmail.com
